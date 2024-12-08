@@ -1,1 +1,0 @@
-# nolanncollell.pro.github.io
